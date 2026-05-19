@@ -1,4 +1,4 @@
-# 
+# premium bot de sniper NFT ejecutor es el mejor bot de sniper NFT ejecutor con análisis de metadatos y acceso temprano a mint. Seguro, confiable y optimizado para estrategias de
 
 
 
